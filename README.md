@@ -1,16 +1,20 @@
-## Hi there 👋
 
-<!--
-**GustavoSPX/GustavoSPX** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## holla seja bem vindo ao meu perfil 🥇🥇
 
-Here are some ideas to get you started:
+**Eu me chamo: Gustavo Henrique Nunes**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-**Tenho:16 Anos**
+
+-**Estou concluindo o Ensino Medio, curso de tecnologia e inglês**
+
+-**Sou bom em trabalhos de equipe, trabalhos individuais, sou um bom lider e tenho facilidade em comunicação e na tomada de decições**
+
+-**tenho habilidades em praticas de atividades fisicas**
+
+-**Gosto de treinar e aprimorar meus conhecimentos**💪📖
+
+-**Meu sonho e me tornar um homem de respeito e de muitas habilidades, tenho como objetivo entrar no mercado de trabalho e criar experiencias**
+
+![](https://media1.tenor.com/m/EJZJr9TSwXUAAAAC/galaxy-turning.gif)
+
+-**O universo está em nossas mãos**⚖️
