@@ -7,7 +7,7 @@
 
 -**Estou concluindo o Ensino Medio, curso de tecnologia e inglês**
 
--**Sou bom em trabalhos de equipe, trabalhos individuais, sou um bom lider e tenho facilidade em comunicação e na tomada de decições**
+-**Sou bom em trabalhos de equipe, trabalhos individuais, sou um bom lider e tenho facilidade em comunicação e na tomada de decisões**
 
 -**tenho habilidades em praticas de atividades fisicas**
 
